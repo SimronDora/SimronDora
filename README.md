@@ -1,3 +1,5 @@
+<img width="667" alt="Screenshot 2021-08-10 at 10 48 11 PM" src="https://user-images.githubusercontent.com/88106014/128961882-61786687-1412-403d-9d72-e2bd3684a36a.png">
+
 - 👋 
 
 Hi I am Simron Dora, I have extensive expertise in Data, Program management, IT, Risk Analytics & Financial Regulatory. I Contribute to and guide the completion of specific programs and projects, supervising skilled and/or lower skilled/routine workers, whilst developing solutions for complex problems.
